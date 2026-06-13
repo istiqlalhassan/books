@@ -1,5 +1,7 @@
 # Me Before You — Jojo Moyes
 
+**Status:** Read
+
 ## Summary
 
 

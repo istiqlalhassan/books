@@ -1,6 +1,8 @@
 # The Girl on the Train — Paula Hawkins
 
-## Summary
+**Status:** Read
+
+## Summar
 
 
 ## Key Moments
