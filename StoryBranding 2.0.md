@@ -1,5 +1,7 @@
 # StoryBranding 2.0 — Jim Signorelli
 
+**Status:** Currently Reading
+
 ## Summary
 
 

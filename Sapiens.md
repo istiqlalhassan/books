@@ -1,5 +1,7 @@
 # Sapiens — Yuval Noah Harari
 
+**Status:** Read
+
 ## Summary
 
 
